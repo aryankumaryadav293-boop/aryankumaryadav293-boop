@@ -15,7 +15,7 @@ CYBERSECURITY |security-engineering  | Cloud Computing Enthusiast | 🇮🇳 Ind
 
 💬 Ask me about: Collaboration, Tech Support
 
-📫 How to reach me: navintiwaricollege@gmail.com
+📫 How to reach me: aryankumaryadabv293@gmail.com
 
 😄 Pronouns: ARYAN KUMAR he/him
 ## 🌐 Socials:
