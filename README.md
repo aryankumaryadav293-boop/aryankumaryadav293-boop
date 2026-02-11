@@ -2,7 +2,7 @@ Hi 👋, I’m ARYAN KUMAR
 
 CYBERSECURITY |security-engineering  | Cloud Computing Enthusiast | 🇮🇳 India
 
-📧 Email: ✉️ navintiwaricollege@gmail.com
+📧 Email: ✉️ aryankumaryadabv293@gmail.com
 
 (For collaboration, projects, or anything else 😊)
 🔭 I’m currently working on: —
